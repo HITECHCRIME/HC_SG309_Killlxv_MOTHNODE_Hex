@@ -18,7 +18,6 @@ Description.
 
 > **Music Video Credits:**
 
-
 ## Lyrics
 
 ```
@@ -56,3 +55,5 @@ I’ve got no reason to be
 ## Short Cinematic Film
 
 ## Miscellaneous Notes
+
+Plugins: CLA Vocals > Vocal Rider > Nectar
