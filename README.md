@@ -48,10 +48,11 @@ I drop into Feelings, her soul just swirling around
 
 I owe it to the dust and the empty chambers 
 Stay there to the very end in the endless spiral 
-make it last my grit on revival
+make it last my grit on revival, it's a fresh spit it's a fresh spit
 
 God’s dead carcass is rotten 
-My faith is alive yet but easily forgotten
+My faith is alive but it's easily forgotten
+I'm into the bottom 
 
 See...  / Crude... Dust on the ground 
 i crave that i can’t raise the faith and
