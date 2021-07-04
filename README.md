@@ -39,20 +39,30 @@ Cut into pieces and feed her to dogs
 Defying the laws they say I'm a god aye
 They say I'm a god yuh
 
+I owe it to the dust and the empty chambers 
+Stay there to the very end in an endless spiral 
+Make it last my grit on revival, it's a fresh spit it's a fresh spit ye
+
+God is dead carcass is rotten 
+My faith is alive but it's easily forgotten
+I'm into the bottom 
 I rise with the dust on the ground
+
+
 i crave that i can’t raise the faith 
 it's the grit in my lungs i am dying again 
 day after day, for truth, for the sins 
 (what) i’ve told yesterday crushed in my hands
 I drop into Feelings, her soul just swirling around
 
-I owe it to the dust and the empty chambers 
-Stay there to the very end in the endless spiral 
-make it last my grit on revival, it's a fresh spit it's a fresh spit ye
+yet i knew these thorns so pierced 
+Fire the source of all suffering 
+Beginning and end is what I bestowed on my life of the painless mind and the
+Flesh is my utmost treat
+I’ve got no reason to be
 
-God’s dead carcass is rotten 
-My faith is alive but it's easily forgotten
-I'm into the bottom 
+
+-------
 
 i crave that i can’t raise the faith 
 the grit in my lungs and i am dying again 
@@ -80,11 +90,6 @@ Helpless but destined to be under the ground
 make it last my grit on revival
 God’s dead carcass is rotten 
 My faith is alive yet but easily forgotten
-yet i knew these thorns so pierced 
-Fire the source of all suffering 
-Beginning and end is what I bestowed on my life of the painless mind and the
-Flesh is my utmost treat
-I’ve got no reason to be
 
 ```
 
