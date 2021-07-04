@@ -21,7 +21,23 @@ Description.
 ## Lyrics
 
 ```
+I sigh with the death on my face
+I walk around with a pair of blades
+I cut and I fuck same pace
+Got blood on my face I fuck with the taste
+Better stay away or you'll be erased
+Cuz I walk around with a pair of blades
+And I cut and I fuck same pace
+Betta (start) counting your days (you're) gonna be my sex slave
 
+Like that white witch pull me out of black smoke ya. 
+Give me more misery and put me out of hope
+Leave her in a casket let her die slow
+Half a dozen hexes on my past hoe
+Grippin that flesh and rip out the bones
+Cut into pieces and feed her to dogs
+Defying the laws they say I'm a god aye
+They say I'm a god yuh
 
 See...  / Crude... Dust on the ground 
 i crave that i can’t raise the faith and
