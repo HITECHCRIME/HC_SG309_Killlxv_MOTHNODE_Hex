@@ -45,7 +45,7 @@ They say I'm a god yuh
 MOTHNODE
 
 I owe it to dust and the empty chambers 
-I'm there to the very end in an endless spiral 
+Stay there to the very end in an endless spiral 
 Make it last my grit on revival
 It's a fresh spit, it's a fresh spit ye
 
