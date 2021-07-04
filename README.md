@@ -48,11 +48,21 @@ I drop into Feelings, her soul just swirling around
 
 I owe it to the dust and the empty chambers 
 Stay there to the very end in the endless spiral 
-make it last my grit on revival, it's a fresh spit it's a fresh spit
+make it last my grit on revival, it's a fresh spit it's a fresh spit ye
 
 God’s dead carcass is rotten 
 My faith is alive but it's easily forgotten
 I'm into the bottom 
+
+i crave that i can’t raise the faith and
+grit in my lungs i am dying again 
+day after day, for truth, for the sins 
+(what) i’ve told yesterday crushed in my hands
+Say what you did not mean... at all. 
+Descend into Feelings, just swirling around 
+My signs still carved on stones 
+deep in the tombs
+So deep into the ground
 
 See...  / Crude... Dust on the ground 
 i crave that i can’t raise the faith and
