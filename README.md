@@ -56,4 +56,4 @@ I’ve got no reason to be
 
 ## Miscellaneous Notes
 
-Plugins: CLA Vocals > Vocal Rider > Nectar
+Plugins: CLA Vocals > Berserk Distortion > Vocal Rider > Nectar
