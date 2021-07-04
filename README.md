@@ -21,6 +21,9 @@ Description.
 ## Lyrics
 
 ```
+
+KILLLXV
+
 I sigh with the death on my face
 I walk around with a pair of blades
 I cut and I fuck same pace
@@ -39,21 +42,26 @@ Cut into pieces and feed her to dogs
 Defying the laws they say I'm a god aye
 They say I'm a god yuh
 
-I owe it to the dust and the empty chambers 
-Stay there to the very end in an endless spiral 
-Make it last my grit on revival, it's a fresh spit it's a fresh spit ye
+MOTHNODE
+
+i owe it to dust and the empty chambers 
+stay there to the very end in an endless spiral 
+make it last my grit on revival
+it's a fresh spit it's a fresh spit ye
 
 God is dead carcass is rotten 
 My faith is alive but it's easily forgotten
-I'm into the bottom 
+I'm into the bottom ya
 I rise with the dust on the ground
 
-
 i crave that i can’t raise the faith 
-it's the grit in my lungs i am dying again 
-day after day, for truth, for the sins 
-(what) i’ve told yesterday crushed in my hands
-I drop into Feelings, her soul just swirling around
+it's the grit in my lungs and i am dying again 
+day after day, for the truth, for the sins 
+what i’ve gave yesterday - crushed in my hands ey
+Say what you did not mean... at all
+I drop into Feelings, her soul just swirling around 
+my signs still carved into the stones in the tombs
+so deep into the ground
 
 yet i knew these thorns so pierced 
 Fire the source of all suffering 
