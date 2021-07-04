@@ -39,6 +39,20 @@ Cut into pieces and feed her to dogs
 Defying the laws they say I'm a god aye
 They say I'm a god yuh
 
+I rise with the dust on the ground
+i crave that i can’t raise the faith 
+it's the grit in my lungs i am dying again 
+day after day, for truth, for the sins 
+(what) i’ve told yesterday crushed in my hands
+I drop into Feelings, her soul just swirling around
+
+I owe it to the dust and the empty chambers 
+Stay there to the very end in the endless spiral 
+make it last my grit on revival
+
+God’s dead carcass is rotten 
+My faith is alive yet but easily forgotten
+
 See...  / Crude... Dust on the ground 
 i crave that i can’t raise the faith and
 grit in my lungs i am dying again 
@@ -54,8 +68,7 @@ Stay there to the end in the endless spiral
 Helpless but destined to be under the ground
 make it last my grit on revival
 God’s dead carcass is rotten 
-My faith is alive yet 
-but easily forgotten
+My faith is alive yet but easily forgotten
 yet i knew these thorns so pierced 
 Fire the source of all suffering 
 Beginning and end is what I bestowed on my life of the painless mind and the
