@@ -60,9 +60,9 @@ Day after day, for the truth, for the sins
 What i’ve gave yesterday crushed in my hands ey
 
 Say what you did not mean... at all
-I drop into Feelings, her soul just swirling around 
-my signs still carved into the stones in the tombs
-so deep into the ground
+I drop into feelings just swirling around 
+My signs still carved into the stones in the tombs
+so deep into the ground, i cannot survive
 
 yet i knew these thorns so pierced 
 Fire the source of all suffering 
