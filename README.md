@@ -54,10 +54,10 @@ God’s dead carcass is rotten
 My faith is alive but it's easily forgotten
 I'm into the bottom 
 
-i crave that i can’t raise the faith and
-grit in my lungs i am dying again 
+i crave that i can’t raise the faith 
+the grit in my lungs and i am dying again 
 day after day, for truth, for the sins 
-(what) i’ve told yesterday crushed in my hands
+what i’ve gave yesterday still crushed in my hands ye
 Say what you did not mean... at all. 
 Descend into Feelings, just swirling around 
 My signs still carved on stones 
