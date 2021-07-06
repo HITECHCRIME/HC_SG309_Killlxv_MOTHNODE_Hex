@@ -44,22 +44,22 @@ They say I'm a god yuh
 
 MOTHNODE
 
-I owe it to dust and the empty chambers 
-Stay there to the very end in an endless spiral 
+OWE it to dust and the empty chambers                 ---------------------I owe
+STAY there to the very end in an endless SPIRAL 
 Make it last my grit on revival
 It's a fresh spit, it's a fresh spit ye
 
-God is dead carcass is rotten 
-My faith is alive but it's easily forgotten
+God is dead carcass is ROTTEN 
+My faith is alive but it's easily FORGOTTEN
 I'm under the bottom ya
 But I rise with the dust on the ground
 
-I crave that i can’t raise the faith 
+(I) Crave that i can’t raise the faith 
 It's the grit in my lungs and i am dying again 
 Day after day, for the truth, for the sins 
 What i’ve gave yesterday crushed in my hands ey
 
-Say what you did not mean... at all
+Say what you did not mean... at all ----------------- CHANGE
 I drop into feelings just swirling around 
 My signs still carved into the stones in the tombs
 so deep into the ground, i cannot survive
