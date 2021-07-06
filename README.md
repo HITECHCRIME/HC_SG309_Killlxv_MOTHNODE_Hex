@@ -45,12 +45,12 @@ They say I'm a god yuh
 MOTHNODE
 
 Owe it to dust and the empty chambers                 ---------------------I owe
-Stay there, sign of an endless spiral, pray to                        ---------------------Stay there to the very end in an endless SPIRAL  
-Make it last my grit on revival 
+Stay there, sign of an endless spiral 
+pray to make it last, my grit on revival                        ---------------------Stay there to the very end in an endless SPIRAL  
 It's a fresh spit, it's a fresh spit ye
 
-God is dead carcass is ROTTEN 
-My faith is alive but it's easily FORGOTTEN
+God is dead carcass is rotten 
+My faith is alive but it's easily forgotten
 I'm under the bottom ya
 But I rise with the dust on the ground
 
