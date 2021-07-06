@@ -45,8 +45,8 @@ They say I'm a god yuh
 MOTHNODE
 
 Owe it to dust and the empty chambers                 ---------------------I owe
-Stay fair to the very end in an endless SPIRAL 
-Make it last my grit on revival
+Stay there, sign of an endless spiral, pray to                        ---------------------Stay there to the very end in an endless SPIRAL  
+Make it last my grit on revival 
 It's a fresh spit, it's a fresh spit ye
 
 God is dead carcass is ROTTEN 
@@ -62,7 +62,9 @@ What i’ve gave yesterday crushed in my hands ey
 Say what you did not mean... at all ----------------- CHANGE
 I drop into feelings just swirling around 
 My signs still carved into the stones in the tombs
-so deep into the ground, i cannot survive
+so deep into the ground, 
+
+i cannot survive
 
 yet i knew these thorns so pierced 
 Fire the source of all suffering 
