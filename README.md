@@ -43,11 +43,17 @@ Defying the laws they say I'm a god aye
 They say I'm a god yuh
 
 MOTHNODE
+
+THOSE rites of a war they really for the weak yeah
+All ya gotta, stay still hex for the fix  
+Pour venomous spit, I'll dare you to speak truth
+Gag on your mouth (so) choke on it deep (aaah)  
+
 Those                                                
-Rites in a war are really for the weak (ye)          - (Those) rites of a war they really for the weak yeah
-All ya gotta SAY STILL hex for the fix               - All ya gotta, stay still hex for the fix  
-It's a venomous spit, I dare you to speak (yeah)     - Pure venomous spit, I'll dare you to speak truth
-Gag IT on the mouth and choke on it deep (ah)        - Gag on your mouth (so) choke on it deep (aaah)  
+Rites in a war are really for the weak (ye)          - 
+All ya gotta SAY STILL hex for the fix               - 
+It's a venomous spit, I dare you to speak (yeah)     - 
+Gag IT on the mouth and choke on it deep (ah)        - 
 
 
 
