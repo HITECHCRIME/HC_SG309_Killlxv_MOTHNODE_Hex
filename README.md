@@ -44,9 +44,9 @@ They say I'm a god yuh
 
 MOTHNODE
 
-Rites in a war are really for the weak ye
+Rites in a war are really for the weak (ye)
 All ya gotta say still hex for the fix 
-It's the venomous spit, I dare you to speak yeah 
+It's the venomous spit, I dare you to speak (yeah) 
 Gag on the mouth and choke on it deep ah  
 
 Owe it to dust and the empty chambers                10             ---------------------I owe
