@@ -44,6 +44,11 @@ They say I'm a god yuh
 
 MOTHNODE
 
+Rites in a war are really for the weak ye
+All ya gotta say still hex for the fix it's the
+Venomous spit, I dare you to speak yeah 
+Gag on the mouth and choke on it deep ah  
+
 Owe it to dust and the empty chambers                10             ---------------------I owe
 Stay there, mind in an endless spiral                9
 Prayers - make it last, my grit on revival           11         ---------------------Stay there to the very end in an endless SPIRAL  
@@ -58,6 +63,8 @@ Crave that i can’t raise the faith                    7
 It's the grit in my lungs and i am dying again       12
 Day after day, for the truth, for the sins           10
 What i gave yesterday - crushed in my hands (ey)     11
+
+
 
 (black black grave) It's the god slain in the flames                                 ---------------- Say what you did not mean... at all -------
 I drop into feelings just swirling around 
