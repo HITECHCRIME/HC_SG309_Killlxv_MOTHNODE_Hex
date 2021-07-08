@@ -43,11 +43,11 @@ Defying the laws they say I'm a god aye
 They say I'm a god yuh
 
 MOTHNODE
-
+Those
 Rites in a war are really for the weak (ye)
-All ya gotta say still hex for the fix 
+All ya gotta SAY STILL hex for the fix 
 It's the venomous spit, I dare you to speak (yeah) 
-Gag on the mouth and choke on it deep ah  
+Gag IT on the mouth and choke on it deep (ah)  
 
 Owe it to dust and the empty chambers                10             ---------------------I owe
 Stay there, mind in an endless spiral                9
