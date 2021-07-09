@@ -44,10 +44,10 @@ They say I'm a god yuh
 
 MOTHNODE
 
-THOSE rites of a war they really for the weak YEAH
+THOSE rites of a war they really for the weak YEAH   -
 All ya gotta, STAY STILL hex for the fix             - All ya gotta pray and prep hex for the fix
-Pour THE venomous spit, I'll dare you to speak truth
-Gag on your mouth _so_ choke on it deep (aaah)  
+Pour THE venomous spit, I'll dare you to speak truth -
+Gag on your mouth _so_ choke on it deep (aaah)       -
 
 Those rites in a war are really for the weak (ye)    - 
 All ya gotta SAY STILL hex for the fix               - 
@@ -57,14 +57,14 @@ Gag IT on the mouth and choke on it deep (ah)        -
 Owe it to dust and the empty chambers                10             - I owe
 Stay there, mind in an endless spiral                9              -
 Prayers - make it last, my grit on revival           11             - Stay there to the very end in an endless SPIRAL
-It's a fresh spit, it's a fresh spit ye               9
+It's a fresh spit, it's a fresh spit ye              9
 
-God is dead carcass is rotten                         8
+God is dead carcass is rotten                        8
 My faith is alive but it's easily forgotten          12
-Thought I'm under the bottom blood                    8
-But I rise with the dust on the ground                8
+Thought I'm under the bottom blood                   8
+But I rise with the dust on the ground               8
 
-Crave that i can’t raise the faith                    7
+Crave that i can’t raise the faith                   7
 It's the grit in my lungs and i am dying again       12
 Day after day, for the truth, for the sins           10
 What i gave yesterday - crushed in my hands (ey)     11
