@@ -1,4 +1,4 @@
-[cover code] ![](cover_01.png)
+![](cover_01.png)
 
 # Killlxv x MOTHNODE_ TITLE
 
