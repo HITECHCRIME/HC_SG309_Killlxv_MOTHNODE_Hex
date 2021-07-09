@@ -44,8 +44,8 @@ They say I'm a god yuh
 
 MOTHNODE
 
-THOSE rites of a war they really for the weak yeah
-All ya gotta, stay still hex for the fix  
+THOSE rites of a war they really for the weak YEAH
+All ya gotta, STAY STILL hex for the fix             - All ya gotta, pray and prep hex for the fix
 Pour venomous spit, I'll dare you to speak truth
 Gag on your mouth (so) choke on it deep (aaah)  
 
