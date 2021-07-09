@@ -49,15 +49,14 @@ All ya gotta, STAY STILL hex for the fix             - All ya gotta pray and pre
 Pour THE venomous spit, I'll dare you to speak truth
 Gag on your mouth _so_ choke on it deep (aaah)  
 
-Those                                                
-Rites in a war are really for the weak (ye)          - 
+Those rites in a war are really for the weak (ye)    - 
 All ya gotta SAY STILL hex for the fix               - 
 It's a venomous spit, I dare you to speak (yeah)     - 
 Gag IT on the mouth and choke on it deep (ah)        - 
 
-Owe it to dust and the empty chambers                10             ---------------------I owe
-Stay there, mind in an endless spiral                9
-Prayers - make it last, my grit on revival           11         ---------------------Stay there to the very end in an endless SPIRAL
+Owe it to dust and the empty chambers                10             - I owe
+Stay there, mind in an endless spiral                9              -
+Prayers - make it last, my grit on revival           11             - Stay there to the very end in an endless SPIRAL
 It's a fresh spit, it's a fresh spit ye               9
 
 God is dead carcass is rotten                         8
