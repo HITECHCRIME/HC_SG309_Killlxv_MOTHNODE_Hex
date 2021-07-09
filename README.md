@@ -1,6 +1,6 @@
 ![](cover_01.png)
 
-# Killlxv x MOTHNODE_ TITLE
+# Killlxv x MOTHNODE_ Hex
 
 **Listen now:** 
 
