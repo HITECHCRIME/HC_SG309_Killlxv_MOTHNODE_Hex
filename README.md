@@ -44,6 +44,29 @@ They say I'm a god yuh
 
 MOTHNODE
 
+those rites of a war they really for the weak yeah
+all ya gotta... stay still, hex for the fix  
+pure venomous spit, i dare you to speak truth
+gag on your mouth and choke on it deep yeah
+owe it to dust and empty chambers, stay there
+till the very end of an endless spiral
+make it last, my grit on revival
+it's a fresh spit, it's a fresh spit ye
+god is dead, carcass is rotten
+my faith is alive but it's easily forgotten
+i'm under the bottom (blood) 
+dust on the ground, dust on the ground
+crave that i can’t raise the faith
+end grit in my lungs and i am dying again
+day after day, for the truth, for the sins
+what i've told yesterday crushed in my hands ey
+
+
+
+
+
+
+
 THOSE rites of a war they really for the weak YEAH   -
 All ya gotta, STAY STILL hex for the fix             - All ya gotta pray and prep hex for the fix
 Pour THE venomous spit, I'll dare you to speak truth -
