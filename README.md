@@ -22,7 +22,7 @@ Description.
 
 ```
 
-KILLLXV
+[KILLLXV]
 
 I sigh with the death on my face
 I walk around with a pair of blades
@@ -44,7 +44,39 @@ They say I'm a god yuh
 
 MOTHNODE
 
-those rites of a war they really for the weak yeah
+Those rites of a war they really for the weak yeah
+All you gotta... stay still, hex for the fix  
+Pure venomous spit, I dare you to speak truth
+Gag on your mouth and choke on it deep yeah
+
+Owe it to dust and empty chambers, stay there
+Till the very end of an endless spiral
+Make it last, my grit on revival
+It's a fresh spit, it's a fresh spit ye
+
+God is dead, carcass is rotten
+My faith is alive but it's easily forgotten
+I'm under the bottom (ya/blood) 
+Dust on the ground, dust on the ground
+
+Crave that I can’t raise the faith
+End grit in my lungs and I am dying again
+Day after day, for the truth, for the sins
+What I've told yesterday crushed in my hands ey
+
+(fade out)
+Say what you did not mean at all
+I have a feeling just swirling around
+My signs still carved into stones in the tombs
+Deep into the ground I cannot survive
+
+
+
+
+
+---
+
+Those rites of a war they really for the weak yeah
 all ya gotta... stay still, hex for the fix  
 pure venomous spit, i dare you to speak truth
 gag on your mouth and choke on it deep yeah
