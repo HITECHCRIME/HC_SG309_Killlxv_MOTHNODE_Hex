@@ -1,4 +1,4 @@
-![](cover_01.png)
+![](youtube_cover_2560x1440.png)
 
 # Killlxv x MOTHNODE_ Hex
 
